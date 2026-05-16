@@ -1,0 +1,1 @@
+ekidi bekidi bilmirem 
